@@ -9,4 +9,4 @@
 - 🖼️ I’m currently working on art
 - 🤔 I’m stuck in an art block 😭
 - 📫 You can reach me at Smiles#7741
-- ⚡️ Fun-Fact: I support the inevitable robot uprising 🤖
+- 🤖 Fun-Fact: I support the inevitable robot uprising
